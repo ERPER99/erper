@@ -1,0 +1,2 @@
+# erper
+Hic bişey bilmiyom
